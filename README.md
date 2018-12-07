@@ -1,2 +1,0 @@
-# wicsdavis.com
-wicsdavis.com
